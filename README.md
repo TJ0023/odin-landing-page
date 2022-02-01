@@ -12,3 +12,13 @@ A website is useless without its subject so the idea of the project is a work in
 3. Anime ( I have been playing Genshin Impact recently so I thought maybe a mock-up of a guide website for characters would be interesting)
 
 and so on and so forth...
+
+Artwork Credits:
+
+u/Franrekkk for the Lemon and Cereal wallpapers 
+Link: 
+https://www.reddit.com/r/PixelArt/comments/laqtqb/another_free_pixelart_wallpaper_pack_this_time/
+
+u/PainterKira for the Diner gif 
+Link:
+https://www.reddit.com/r/PixelArt/comments/s59byx/no_visitors_today_10_colors/
